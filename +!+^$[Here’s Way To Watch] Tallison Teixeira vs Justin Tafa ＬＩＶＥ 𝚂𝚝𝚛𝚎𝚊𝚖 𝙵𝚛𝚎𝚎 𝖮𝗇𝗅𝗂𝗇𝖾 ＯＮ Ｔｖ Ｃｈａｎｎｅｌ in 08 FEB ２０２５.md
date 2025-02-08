@@ -2,6 +2,12 @@
 
 UFC makes a rare visit down under on Saturday, with Dricus Du Plessis putting his middleweight title on the line against Sean Strickland as the headlining act for UFC 312 in Sydney, Australia.
 
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](https://asho-paad-khao.blogspot.com/2025/02/uf.html)**
+
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](https://asho-paad-khao.blogspot.com/2025/02/uf.html)**
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPny_OcYwXNkoBv2GQS7pdU8zWexW1VOdQ00RvjBySHV-GOUMqWZMYlbJ9_ZesDjY7BIETpQ2E1DMCxGBPyeQdh1O8NvNKACAa6RXHuc-G55Zcd-Ie1FI3PxSwA-jS2U8_hGP5Eo3jhchJKpcjTJR-GnapCXmL3McY3Q9yVtiVFbkNW9bHDVuQ5UZp8Ig/w524-h295/UFC%20Main.gif)](https://asho-paad-khao.blogspot.com/2025/02/uf.html)
+
 The main act marks the second meeting between the two fighters after South African star Du Plessis claimed the title from California's Strickland with a split decision in January of 2024.
 
 Having made a successful first defense of his belt against Israel Adesanya at UFC 305 in August, Du Plessis now takes on Strickland again at the top of a bill that also sees women's strawweight belt holder Zhang Weili attempt to defend her title against Tatiana Suarez.
